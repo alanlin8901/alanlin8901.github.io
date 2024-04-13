@@ -1,2 +1,2 @@
 # alanlin8901.github.io
-For personal 
+[PERSONAL PAGE](alanlin8901.github.io)🧑
